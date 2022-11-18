@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @XinYuanSun-China
 - 👀 I’m interested in zhengzinuo
-- 🌱 I’m studying in highschool
+- 🌱 I’m studying in highschool(田家炳)
 - 📫 How to reach me sunxinyuan_zzn@163.com
 - I love 郑喻文
 
